@@ -1,0 +1,3 @@
+Mein Freund
+
+Er ist mein best Freund. Ich kenne er schon seit 7 Jahre. Er hat ein lebendiges und hilfbereites Wesen, und meisten hilf er mir bei meinem Lernen, weil er in der Leistung gut ist. Er ist äußerst interessiert an Englisch , dass er häufig ein Englisch Roman liest. Zudem sind der alle Typ des film unheimlich interessant für ihn, er sieht sogar der film vor 60 Jahren, den wir als Schwarzundweißfilm bezeichnen. Aber manchmal ist er ein bisschen hartnäckig in manchen Fällen, weil er an mich als anderen glauben möchtet. 
